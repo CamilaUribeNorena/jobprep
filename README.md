@@ -19,3 +19,4 @@ Soy Médica Epdiemiologoy Auditora en Salud en transición hacia Data Analytics 
 
 ## 🔗 Conecta conmigo
 www.linkedin.com/in/maria-camila-uribe-841118199
+Email: camiuribe28@gmail.com
